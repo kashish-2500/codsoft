@@ -1,0 +1,1 @@
+I am very thankfull and appreciate codsoft to offer me this internship. this internship help me learn webdevelopment and improved my problem solving and creative thinking skills. These tasks are very helpfull in making me understand an better view in webdevelopment and improvement in the same
